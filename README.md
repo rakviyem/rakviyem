@@ -8,7 +8,7 @@
 <img width="400" height="300" alt="image" src="https://i.imgur.com/cyCjxf4.png" />
 <div align="center">
 
-[ATABOOK](https://rakviyem.atabook.org) [STRAWPAGE](https://rakviyem.straw.page) [RENTRY](https://rentry.co/rakviyem) [PRNS](https://en.pronouns.page/@rakviyem)
+[ATABOOK](https://rakviyem.atabook.org) [STRAWPAGE](https://directoryviyem.straw.page) [RENTRY](https://rentry.co/rakviyem) [PRNS](https://en.pronouns.page/@rakviyem)
 
 </div>
 
