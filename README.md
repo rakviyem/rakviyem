@@ -13,7 +13,7 @@
 </div>
 
 <p align="center">
-  they . it
+  it . they
 <p align="center">
 c+h freely no need to ask.
 <p align="center">
