@@ -5,7 +5,7 @@
   ‌𓆣 ˋ°•*⁀➷
 </p>
 <p align="center">
-<img width="400" height="300" alt="image" src="https://i.imgur.com/cyCjxf4.png" />
+<img width="400" height="350" alt="image" src="https://i.imgur.com/F72Cf0S.png" />
 <div align="center">
 
 [ATABOOK](https://rakviyem.atabook.org) [STRAWPAGE](https://directoryviyem.straw.page) [RENTRY](https://rentry.co/rakviyem) [PRNS](https://en.pronouns.page/@rakviyem)
