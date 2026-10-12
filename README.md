@@ -20,5 +20,3 @@
 cudcomf. c+h freely no need to ask.
 <p align="center">
 awkward / anxious in social settings . offtab a lot so whispering is preferred
-<p align="center">
-  mentally unwell so be wary of that.
